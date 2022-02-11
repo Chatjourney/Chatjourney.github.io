@@ -1,2 +1,2 @@
 # Chatjourney.github.io
-This website is for me 
+Dhan and ajaya is bitch
